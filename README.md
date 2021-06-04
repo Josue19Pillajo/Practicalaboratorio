@@ -10,3 +10,4 @@
 ![Practica de laboratorio  1 Pillajo_Castro-09](https://user-images.githubusercontent.com/84783236/120791827-4a28fb80-c4fa-11eb-848e-ff8f44772c57.png)
 ![Practica de laboratorio  1 Pillajo_Castro-10](https://user-images.githubusercontent.com/84783236/120791835-4d23ec00-c4fa-11eb-9976-6202a36885ac.png)
 ![Practica de laboratorio  1 Pillajo_Castro-11](https://user-images.githubusercontent.com/84783236/120791838-4f864600-c4fa-11eb-8da1-dd648c13f721.png)
+VIDEO https://youtu.be/DPfhqhkTp0o
